@@ -3,3 +3,146 @@
 
 # playlist.github.io
 - [Smashing Pumpkins - Dancing In The Moonlight](https://www.youtube.com/watch?feature=player_detailpage&v=CBPzZE-jRNM)
+- OneRepublic - Counting Stars
+- Pharrell Williams - Happy
+- Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
+- Meghan Trainor - All About That Bass 
+- Arctic Monkeys - 'Fluorescent Adolescent' (2007) 
+- The Irrepressibles - In This Shirt (Röyksopp Remix)
+- ALWAYS ON MY MIND - THE IRREPRESSIBLES
+- New World - The Irrepressibles
+- THE IRREPRESSIBLES - ARROW 
+- Pet Shop Boys - It's A Sin
+- Pet Shop Boys - Always On My Mind 
+- Depeche Mode - Enjoy The Silence
+- Gotye - Somebody That I Used To Know (feat. Kimbra)
+- Fun.: We Are Young ft. Janelle Monáe
+- Of Monsters and Men - Little Talks 
+- Woodkid – Iron
+- Lana Del Rey - Summertime Sadness
+- Hozier - Take Me To Church 
+- Sia – Chandelier
+- John Legend - All of Me 
+- Lilly Wood & The Prick and Robin Schulz - Prayer In C (Robin Schulz Remix)
+- Bad Touch - BloodHound Gang
+- Engelbert Humperdinck - Release Me
+- Engelbert Humperdinck - Les bicyclettes de Belsize 
+- Frank Sinatra - Strangers in the Night
+- Nancy Sinatra - These Boots Are Made for Walkin' 
+- What a wonderful world - LOUIS ARMSTRONG. 
+- Edith Piaf - Non, Je ne regrette rien 
+- Doris Day - Que Sera Sera
+- Paul Anka- Diana
+- Righteous Brothers - Unchained Melody
+- KATYUSHA old russian song 
+- Louis Armstrong Ochi Chernyie
+- Kalinka Malinka
+- Ochi Chernye
+- Ivan Rebroff - Havah Nagila
+- JULIO IGLESIAS "BAILA MORENA" 
+- Julio Iglesias Agua dulce agua sale 
+- Julio Iglesias - Nostalgie 
+- Julio Iglesias - Ni Te Tengo Ni Te Olvido 
+- Vangelis - Aquatic Dance
+- a-ha - The Sun Always Shines On TV 
+- Live is Life - Opus
+- MC Hammer - U Can't Touch This 
+- Salt-N-Pepa - Push It 
+- Haddaway - What Is Love
+- Dr. Alban - It's My Life
+- Foreigner - I want to know what love is
+- John Waite - Missing You
+- Queen - I Want To Break Free
+- a-ha - Take On Me
+- Alphaville - Forever Young
+- Europe - The Final Countdown
+- John Lennon - Imagine 
+- Bryan Adams - Please Forgive Me 
+- Roxette - It Must Have Been Love 
+- Roxette - Listen To Your Heart
+- Bryan Adams - (Everything I Do) I Do It For You 
+- Richard Marx - Right Here Waiting
+- Bon Jovi - Always 
+- Bonnie Tyler - Total Eclipse of the Heart 
+- MeatLoaf - I'd Do Anything For Love
+- Smile - Andy Hunter – Colour
+- Antonio Banderas - Morena De Mi Corazon
+- Citizen Cope - Brother Lee 
+- Kings Of Leon - Sex on Fire 
+- Freemasons feat Sophie Ellis-Bextor – Heartbreak
+- Paul van Dyk - Let Go ft. Rea Garvey 
+- Antonio Maggio - Nonostante Tutto 
+- Antonio Maggio - Mi Servirebbe Sapere
+- GIANNI MORANDI - IN GINOCCHIO DA TE
+- Gianni Morandi - Belinda 
+- Gianni Morandi - Fatti mandare dalla mamma a prendere il latte 
+- Gianni Morandi - Parla più piano 
+- Adriano Celentano - Il Tempo Se Ne Va 
+- Adriano Celentano – Susanna
+- Massimo Ranieri Perdere l'amore 
+- Charles Aznavour - LA BOHÈME
+- Les Deux Guitares - Charles Aznavour
+- Joe Dassin Taka,takata
+- ADAMO ,Tombe la neige 
+- Maigret Jnr - Waiting For The Guns
+- Dan Spataru - Nu stiam ca ma iubesti si tu 
+- Dan Spataru - Nu m-am gandit la despartire 
+- Dan Spataru - Sa cantam, chitara mea 
+- Mihaela Mihai - De-ai fi tu salcie la mal... 
+- Mihaela Runceanu-Fericirea are chipul tau 
+- M-am indragostit numai de ea - Ducu Bertzi 
+- Corina Chiriac - "Inimă nu fi de piatră"
+- Mirabela Dauer- Te-astept sa vii 
+- Gabriel Dorobantu - Hai vino iar in gara noastra mica 
+- GHEORGHE GHEORGHIU - UNDE DRAGOSTE NU E, NIMIC NU E
+- Adrian Daminescu-Si m-am indragostit de tine 
+- Nina Zilli - 50 Mila (Versione mineVaganti)
+- Pink Martini - Una Notte A Napoli 
+- Sulina Waltz 
+- Baccarà - Sorry I'm A Lady
+- Mine Vaganti
+- Patty Pravo - Pensiero Stupendo
+- Pink Martini - Let's never stop falling in love 
+- Pink Martini - Hang on little tomato 
+- Pink Martini - Lilly 
+- Pink Martini - Amado mio 
+- Pink Martini - Sway 
+- Pink Martini - Tempo Perdido /Lagrimas/ 
+- Pink Martini - Taya Tan 
+- Red Hot Chili Peppers - Snow 
+- The White Stripes - 'Seven Nation Army' 
+- Jet - Are You Gonna Be My Girl?
+- Iggy Pop - The Passenger 
+- Iggy Pop- In the Death Car
+- Goran Bregovic - Bella Ciao
+- Bubamara - Goran Bregovic
+- Goran Bregovic - Gas Gas 
+- Monty Python – Always look at the bright side
+- Stardust - Django Reinhardt 
+- Minor Swing - Django Reinhardt & Stéphane Grappelli
+- Louis Armstrong - The Best Of A Wonderful World (Full Album) https://www.youtube.com/watch?v=dNzYXoulqOU
+- The very best of Nat King Cole https://www.youtube.com/watch?v=qBFB8kyE8XI
+- Piano Bar - Best of Jazz Hits https://www.youtube.com/watch?v=pZsW6M1VA7k
+- Swing and Electro Swing Collection https://www.youtube.com/watch?v=OwWT43Eb3IM
+- B.B. King - Sweet Sixteen
+- The Very Best Of Nina Simone https://www.youtube.com/watch?v=GkjP-0SLzAo
+- U2 – Beautiful day
+- U2 Greatest Hits (Full Album) - The Best Of U2 https://www.youtube.com/watch?v=xE6JxKr40g0
+- Bruce Springsteen's Greatest Hits - The Best Of Bruce Springsteen https://www.youtube.com/watch?v=XtylMjSGZ4o
+- The Best of Glenn Miller https://www.youtube.com/watch?v=Av0cQJkq2T0
+- Marilyn Monroe - I Wanna Be Loved By You
+- Marilyn Monroe - Diamonds Are the Girl's Best Friend
+- Marilyn Monroe - A Little Girls from Little Rock
+- Swing and Electro Swing Collection (Revised/Extended) https://www.youtube.com/watch?feature=player_detailpage&v=5nhp6ULk7mE#t=847
+- Il Volo - Grande amore
+- Ion Voicu - Hora mărțișorului (Grigoraș Dinicu) 
+- Celibidache conducts Enescu - Romanian Rhapsody No. 1 (complete) 
+- Grigoraș Dinicu - Hora lui Dobrică
+- Ileana Sărăroiu - Dar-ar naiba-n tine, dragoste
+- Frumoasa vecina noastra - Tiberiu Ceia
+- Sârba din căruţă / Chain dance from the cart 
+- Severineancă & Hora de la Işalniţa 
+- Țărăneasca de la capul satului / Peasant-style dance from the village limit area 
+- Roata de pe Remezeu / Round circle dance from Remezeu village 
+- Leliţa cârciumăreasă / My little publican sister 
+- Maria Tănase - Lume, lume 
