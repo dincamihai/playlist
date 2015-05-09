@@ -18,7 +18,10 @@
 - [Whigfield - Sexy Eyes (Stevie's Amen UK Edit)](https://www.youtube.com/watch?v=fphjh7m5flA)
 - [2 Brothers on the 4th floor - Dreams (Will come alive)](https://www.youtube.com/watch?v=Lk3lQRmIkoM)
 - [Prodigy - No Good](https://www.youtube.com/watch?v=6RI9wVgOO1s)
-
+- [Bastille - Pompeii](https://www.youtube.com/watch?list=PLFLjA-BCYmWE2_6bBuBahJpoKxbE_l82f&feature=player_detailpage&v=F90Cw4l-8NY)
+- [Bloc Party - Banquet](https://www.youtube.com/watch?v=vdkmhquF60o)
+- [Freemasons feat. Sophie Ellis-Bextor - Heartbreak](https://www.youtube.com/watch?v=bWkP-mt_bOk)
+- [Lady GaGa - Dance In The Dark](https://www.youtube.com/watch?v=-SBmJvwiDns)
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
