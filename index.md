@@ -4,6 +4,21 @@
 # playlist.github.io
 - [The Cascades - The Rhythm of the Rain](https://www.youtube.com/watch?v=gmF_bG5IVnM)
 - [OneRepublic - Counting Stars]()
+- [Pulp - Disco 2000](https://www.youtube.com/watch?v=qJS3xnD7Mus)
+- [Pulp - Common People](https://www.youtube.com/watch?v=yuTMWgOduFM)
+- [Supergrass - Alright](https://www.youtube.com/watch?v=fwjXgskUN50)
+- [Blur - Country House](https://www.youtube.com/watch?v=ci0fyRAw21Q)
+- [Eagle Eye Cherry](https://www.youtube.com/watch?v=DL7-CKirWZE)
+- [Iggy Pop](https://www.youtube.com/watch?v=hLhN__oEHaw)
+- [Dire Straits](https://www.youtube.com/watch?v=h0ffIJ7ZO4U)
+- [Dire Straits](https://www.youtube.com/watch?v=kd9TlGDZGkI)
+- [The Proclaimers](https://www.youtube.com/watch?v=tM0sTNtWDiI)
+- [Cutting Crew](https://www.youtube.com/watch?v=_wvHVGvyUzY)
+- [Bombalurina - Itsy Bitsy Teeny Weeny Yellow Polka Dot Bikini](https://www.youtube.com/watch?v=YiVMmAk45oY)
+- [Whigfield - Sexy Eyes (Stevie's Amen UK Edit)](https://www.youtube.com/watch?v=fphjh7m5flA)
+- [2 Brothers on the 4th floor - Dreams (Will come alive)](https://www.youtube.com/watch?v=Lk3lQRmIkoM)
+- [Prodigy - No Good](https://www.youtube.com/watch?v=6RI9wVgOO1s)
+
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
