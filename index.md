@@ -22,6 +22,35 @@
 - [Bloc Party - Banquet](https://www.youtube.com/watch?v=vdkmhquF60o)
 - [Freemasons feat. Sophie Ellis-Bextor - Heartbreak](https://www.youtube.com/watch?v=bWkP-mt_bOk)
 - [Lady GaGa - Dance In The Dark](https://www.youtube.com/watch?v=-SBmJvwiDns)
+- [Urban Cone - Sadness Disease](https://youtu.be/oilGb3yL1ds)
+- [Parov Stelar - Lets Roll](https://youtu.be/nH0PoYx99Ws)
+- [Parov Stelar - Catgroove (TSC - Forsythe)](https://youtu.be/twqM56f_cVo)
+- [Parov Stelar - Demon Dance](https://www.youtube.com/watch?v=BP2jz7UCiig)
+- [The Cure - Boys Don't Cry](https://youtu.be/9GkVhgIeGJQ)
+- [The Cure - In Between Days](https://youtu.be/scif2vfg1ug)
+- [MAGIC! - Rude](https://youtu.be/PIh2xe4jnpk)
+- [Spin Doctors - Two Princes](https://youtu.be/wsdy_rct6uo)
+- [Ellie Goulding - Burn](https://youtu.be/CGyEd0aKWZE)
+- [Madeon - You're On ft. Kyan (Official Video)](https://youtu.be/CGCnoVrgf9c)
+- [The Avener, Phoebe Killdeer - Fade Out Lines](https://youtu.be/hqwU7nv3hTM)
+- [Asaf Avidan - One day / Reckoning Song (Wankelmut Remix)](https://youtu.be/KRAMNWzfjcg)
+- [AronChupa - I'm an Albatraoz (Official Music Video](https://youtu.be/Bznxx12Ptl0)
+- [Klingande - Jubel (Official Video HD)](https://youtu.be/b6vSf0cA9qY)
+- [Calvin Harris - Summer](https://youtu.be/ebXbLfLACGM)
+- [Calvin Harris - Blame ft. John Newman](https://youtu.be/6ACl8s_tBzE)
+- [Calvin Harris - Sweet Nothing ft. Florence Welch](https://youtu.be/17ozSeGw-fY)
+- [John Newman - Love Me Again](https://youtu.be/CfihYWRWRTQ)
+- [David Guetta - She Wolf (Falling To Pieces) ft. Sia (Official Video)](https://youtu.be/PVzljDmoPVs)
+- [M83 'Midnight City' Official video](https://youtu.be/dX3k_QDnzHE)
+- [Funeral Suits - All those friendly people](https://youtu.be/5j4l_NdkYMQ)
+- [Avicii - Wake Me Up (Official Video)](https://youtu.be/IcrbM1l_BoI)
+- [Of Monsters and Men - Little Talks](https://youtu.be/ghb6eDopW8I)
+- [Sigma - Nobody To Love (Official Video)](https://youtu.be/KD5fLb-WgBU)
+- [POSTILJONEN - SUPREME](https://youtu.be/m25Nsa-fvms)
+- [WEKEED - Wild Child](https://youtu.be/cNvjKkXFBvU)
+- [Martin Solveig & GTA - Intoxicated (Official Music Video)](https://youtu.be/94Rq2TX0wj4)
+- [Rudimental - Waiting All Night ft. Ella Eyre Official Video](https://youtu.be/M97vR2V4vTs)
+- [Maximo Park - The Coast Is Always Changing](https://www.youtube.com/watch?v=5ZwlgP21JhE)
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
@@ -35,7 +64,6 @@
 - Depeche Mode - Enjoy The Silence
 - Gotye - Somebody That I Used To Know (feat. Kimbra)
 - Fun.: We Are Young ft. Janelle Monáe
-- Of Monsters and Men - Little Talks 
 - Woodkid – Iron
 - Lana Del Rey - Summertime Sadness
 - Hozier - Take Me To Church 
@@ -63,7 +91,6 @@
 - Julio Iglesias - Ni Te Tengo Ni Te Olvido 
 - Vangelis - Aquatic Dance
 - a-ha - The Sun Always Shines On TV 
-- Live is Life - Opus
 - MC Hammer - U Can't Touch This 
 - Salt-N-Pepa - Push It 
 - Haddaway - What Is Love
@@ -138,12 +165,12 @@
 - Monty Python – Always look at the bright side
 - Stardust - Django Reinhardt 
 - Minor Swing - Django Reinhardt & Stéphane Grappelli
-- Louis Armstrong - The Best Of A Wonderful World (Full Album) https://www.youtube.com/watch?v=dNzYXoulqOU
-- The very best of Nat King Cole https://www.youtube.com/watch?v=qBFB8kyE8XI
-- Piano Bar - Best of Jazz Hits https://www.youtube.com/watch?v=pZsW6M1VA7k
-- Swing and Electro Swing Collection https://www.youtube.com/watch?v=OwWT43Eb3IM
+- [Louis Armstrong - The Best Of A Wonderful World (Full Album)]( https://www.youtube.com/watch?v=dNzYXoulqOU)
+- [The very best of Nat King Cole]( https://www.youtube.com/watch?v=qBFB8kyE8XI)
+- [Piano Bar - Best of Jazz Hits]( https://www.youtube.com/watch?v=pZsW6M1VA7k)
+- [Swing and Electro Swing Collection]( https://www.youtube.com/watch?v=OwWT43Eb3IM)
 - B.B. King - Sweet Sixteen
-- The Very Best Of Nina Simone https://www.youtube.com/watch?v=GkjP-0SLzAo
+- [The Very Best Of Nina Simone](https://www.youtube.com/watch?v=GkjP-0SLzAo)
 - U2 – Beautiful day
 - U2 Greatest Hits (Full Album) - The Best Of U2 https://www.youtube.com/watch?v=xE6JxKr40g0
 - Bruce Springsteen's Greatest Hits - The Best Of Bruce Springsteen https://www.youtube.com/watch?v=XtylMjSGZ4o
@@ -151,7 +178,7 @@
 - Marilyn Monroe - I Wanna Be Loved By You
 - Marilyn Monroe - Diamonds Are the Girl's Best Friend
 - Marilyn Monroe - A Little Girls from Little Rock
-- Swing and Electro Swing Collection (Revised/Extended) https://www.youtube.com/watch?feature=player_detailpage&v=5nhp6ULk7mE#t=847
+- [Swing and Electro Swing Collection (Revised/Extended)](https://www.youtube.com/watch?feature=player_detailpage&v=5nhp6ULk7mE#t=847)
 - Il Volo - Grande amore
 - Ion Voicu - Hora mărțișorului (Grigoraș Dinicu) 
 - Celibidache conducts Enescu - Romanian Rhapsody No. 1 (complete) 
