@@ -51,6 +51,11 @@
 - [Martin Solveig & GTA - Intoxicated (Official Music Video)](https://youtu.be/94Rq2TX0wj4)
 - [Rudimental - Waiting All Night ft. Ella Eyre Official Video](https://youtu.be/M97vR2V4vTs)
 - [Maximo Park - The Coast Is Always Changing](https://www.youtube.com/watch?v=5ZwlgP21JhE)
+- [Capital Cities - Safe And Sound](https://www.youtube.com/watch?v=47dtFZ8CFo8&index=6&list=RD1-OfPY5Pyiw)
+- [The Royal Concept - On Our Way](https://www.youtube.com/watch?v=nWyhUoxAbYI&index=3&list=RD1-OfPY5Pyiw)
+- [Imagine Dragons - Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&index=18&list=RD1-OfPY5Pyiw)
+- [Kings Of Leon - Supersoaker](https://www.youtube.com/watch?v=64a15jJqFDk&list=RD1-OfPY5Pyiw&index=19)
+- 
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
