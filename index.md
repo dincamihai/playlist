@@ -55,7 +55,6 @@
 - [The Royal Concept - On Our Way](https://www.youtube.com/watch?v=nWyhUoxAbYI&index=3&list=RD1-OfPY5Pyiw)
 - [Imagine Dragons - Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&index=18&list=RD1-OfPY5Pyiw)
 - [Kings Of Leon - Supersoaker](https://www.youtube.com/watch?v=64a15jJqFDk&list=RD1-OfPY5Pyiw&index=19)
-- 
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
