@@ -55,6 +55,16 @@
 - [The Royal Concept - On Our Way](https://www.youtube.com/watch?v=nWyhUoxAbYI&index=3&list=RD1-OfPY5Pyiw)
 - [Imagine Dragons - Demons](https://www.youtube.com/watch?v=mWRsgZuwf_8&index=18&list=RD1-OfPY5Pyiw)
 - [Kings Of Leon - Supersoaker](https://www.youtube.com/watch?v=64a15jJqFDk&list=RD1-OfPY5Pyiw&index=19)
+- [The Police - Every Breath You Take](https://youtu.be/OMOGaugKpzs)
+- [Culture Club - Karma Chameleon](https://youtu.be/JmcA9LIIXWw)
+- [OutKast - Hey Ya!](https://youtu.be/PWgvGjAhvIw)
+- [LMFAO - Party Rock Anthem ft. Lauren Bennett, GoonRock](https://youtu.be/KQ6zr6kCPj8)
+- [The Black Eyed Peas - I Gotta Feeling](https://youtu.be/uSD4vsh1zDA)
+- [The Black Eyed Peas - Pump It](https://youtu.be/ZaI2IlHwmgQ)
+- [will.i.am - This Is Love ft. Eva Simons](https://youtu.be/9I9Ar6upx34)
+- [MACKLEMORE & RYAN LEWIS - THRIFT SHOP FEAT. WANZ (OFFICIAL VIDEO)](https://youtu.be/QK8mJJJvaes)
+- [David Guetta - Titanium ft. Sia (Official Video)](https://youtu.be/JRfuAukYTKg)
+- ["Princess Chelsea - The Cigarette Duet](https://youtu.be/4TV_128Fz2g)
 - Pharrell Williams - Happy
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
