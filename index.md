@@ -66,6 +66,7 @@
 - [David Guetta - Titanium ft. Sia (Official Video)](https://youtu.be/JRfuAukYTKg)
 - ["Princess Chelsea - The Cigarette Duet](https://youtu.be/4TV_128Fz2g)
 - Pharrell Williams - Happy
+- Yann Tiersen - Dispute
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
 - Arctic Monkeys - 'Fluorescent Adolescent' (2007) 
@@ -105,7 +106,6 @@
 - Julio Iglesias - Ni Te Tengo Ni Te Olvido 
 - Vangelis - Aquatic Dance
 - a-ha - The Sun Always Shines On TV 
-- MC Hammer - U Can't Touch This 
 - Salt-N-Pepa - Push It 
 - Haddaway - What Is Love
 - Dr. Alban - It's My Life
@@ -142,7 +142,6 @@
 - Charles Aznavour - LA BOHÈME
 - Les Deux Guitares - Charles Aznavour
 - Joe Dassin Taka,takata
-- ADAMO ,Tombe la neige 
 - Maigret Jnr - Waiting For The Guns
 - Dan Spataru - Nu stiam ca ma iubesti si tu 
 - Dan Spataru - Nu m-am gandit la despartire 
