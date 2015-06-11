@@ -72,9 +72,6 @@
 - Enrique Iglesias - Bailando (Español) ft. Descemer Bueno, Gente De Zona
 - Meghan Trainor - All About That Bass 
 - Arctic Monkeys - 'Fluorescent Adolescent' (2007) 
-- The Irrepressibles - In This Shirt (Röyksopp Remix)
-- New World - The Irrepressibles
-- THE IRREPRESSIBLES - ARROW 
 - Pet Shop Boys - It's A Sin
 - Pet Shop Boys - Always On My Mind 
 - Depeche Mode - Enjoy The Silence
