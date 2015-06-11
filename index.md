@@ -73,7 +73,6 @@
 - Meghan Trainor - All About That Bass 
 - Arctic Monkeys - 'Fluorescent Adolescent' (2007) 
 - The Irrepressibles - In This Shirt (Röyksopp Remix)
-- ALWAYS ON MY MIND - THE IRREPRESSIBLES
 - New World - The Irrepressibles
 - THE IRREPRESSIBLES - ARROW 
 - Pet Shop Boys - It's A Sin
