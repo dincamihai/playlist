@@ -3,6 +3,8 @@
 
 # playlist.github.io
 - [The Cascades - The Rhythm of the Rain](https://www.youtube.com/watch?v=gmF_bG5IVnM)
+- [Antonio Vivaldi - Mandolin Concerti](https://www.youtube.com/watch?v=x6Hvdrf--V0)
+- [Dmitri Shostakovich - Waltz No. 2](https://www.youtube.com/watch?v=mmCnQDUSO4I)
 - [OneRepublic - Counting Stars]()
 - [Pulp - Disco 2000](https://www.youtube.com/watch?v=qJS3xnD7Mus)
 - [Pulp - Common People](https://www.youtube.com/watch?v=yuTMWgOduFM)
@@ -92,6 +94,7 @@
 - Nancy Sinatra - These Boots Are Made for Walkin' 
 - What a wonderful world - LOUIS ARMSTRONG. 
 - Edith Piaf - Non, Je ne regrette rien 
+- Edith Piaf - L'hymne à l'amour 
 - Doris Day - Que Sera Sera
 - Paul Anka- Diana
 - Righteous Brothers - Unchained Melody
@@ -204,3 +207,17 @@
 - Roata de pe Remezeu / Round circle dance from Remezeu village 
 - Leliţa cârciumăreasă / My little publican sister 
 - Maria Tănase - Lume, lume 
+- Maria Tanase- " Bun ii vinu' ghiurghiuliu"
+- [DOMINO - Bun îi vinu ghiurghiuliu (official)](https://www.youtube.com/watch?v=T-iOKwl3dpI) doar pana la minutul 1.33
+- Maria Tanase - "Ciuleandra" 
+- MARIA TANASE - MI-AM PUS BUSUIOC IN PAR 
+- Gica Petrescu - Cine mi te-a suparat 
+- Gica Petrescu - Dragi prieteni, sus paharul!
+- Gica Petrescu - Viata-i bine s-o iubesti 
+- Gica Petrescu - Suparare, veselie 
+- Gică Petrescu- Zaraza 
+- Gică Petrescu -Dă-i cu șprițul pân la ziuă
+- Gică Petrescu -Astă seară nimeni să nu doarmă 
+-  [Margareta Paslaru - Harap Alb](https://www.youtube.com/watch?v=9yeq3WGImls&list=PLnO1MCzqFXf5PlvJS6UjpbSt5TIx7grwJ)
+-  [TANGO - Enrico Macias & Margareta Paslaru](https://www.youtube.com/watch?v=E7nmgsagKPI)
+-  
